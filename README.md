@@ -1,1 +1,1 @@
-https://NutronStar45.github.io for more info
+https://NutronStar45.github.io
